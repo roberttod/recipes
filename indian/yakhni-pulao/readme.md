@@ -1,7 +1,7 @@
 Yakhni pulao
 ------------
 
-Yakhni pulao is a very popular north Indian cuisine. This recipe is my wife's favorite Indian food, though much better if prepared by my mother in law who has tried her best to teach me to cook it too.
+Yakhni pulao is a very popular north Indian dish. This recipe is my wife's favorite Indian food, though much better if prepared by my mother in law who has tried her best to teach me to cook it too.
 
 This yakhni pulao is based on a spice mix she uses, called "Shan Punjabi Yakhni Pilau". If you don't have an Indian grocer nearby, you can check [Google Shopping](https://www.google.com/search?sxsrf=ALeKk026m5KIZUOMsX2zi0QM6x6ZErseMQ%3A1611196599464&ei=t-gIYL7gG-Cr5NoPvdCRiAM&q=Shan+Punjabi+Yakhni+Pilau&oq=Shan+Punjabi+Yakhni+Pilau&gs_lcp=CgZwc3ktYWIQAzIFCAAQyQM6BAgAEEdQqJQBWKiUAWDQmAFoAHAEeACAAUGIAUGSAQExmAEAoAECoAEBqgEHZ3dzLXdpesgBCMABAQ&sclient=psy-ab&ved=0ahUKEwj-l-WH_6vuAhXgFVkFHT1oBDEQ4dUDCA0&uact=5) to have it delivered online.
 
